@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Lord of the Rings
+- The Murderbot Series
+- The Broken Earth 
